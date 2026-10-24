@@ -1,0 +1,1 @@
+https://astanait-my.sharepoint.com/:x:/g/personal/240918_astanait_edu_kz/IQCeBkEoLnnXQbaCteyTzQ03AbOKV19lI8t-qzqPmUYo6LU?e=es6I24
